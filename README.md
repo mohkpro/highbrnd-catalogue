@@ -1,1 +1,1 @@
-# highbrnd-catalogue
+# Catalogue en ligne HIGHBRND
